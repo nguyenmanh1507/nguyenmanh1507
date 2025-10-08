@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-![IMG_4633](https://github.com/nguyenmanh1507/nguyenmanh1507/assets/9910313/5568a093-eeac-4aba-8d87-5a95653fcded)
+![IMG_5770](https://github.com/user-attachments/assets/44298283-ba04-4d31-b41b-2f7a48b23fc0)
 
 <!--
 **nguyenmanh1507/nguyenmanh1507** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
